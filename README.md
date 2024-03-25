@@ -1,3 +1,2 @@
-Ele está aqui...
-O Guizo Alien Está aqui e saber tudo é inevitavel >:)
-![imagem](https://media1.tenor.com/m/v9ymhjNoD8AAAAAd/guizo-sinais-do-outro-lado.gif)!
+Quer um abraço mn? :D
+![imagem](https://media1.tenor.com/m/Hm5vGK8uN04AAAAC/omori-basil.gif)!
